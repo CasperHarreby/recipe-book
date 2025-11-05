@@ -9,7 +9,7 @@
 
 ## Ingredients
 
-- 250 g frozen blueberries
+- 400 g frozen blueberries
 - 0.5 dL water (if using frozen berries)
 - 2 bananas
 - 2.5 dL milk (high fat)
